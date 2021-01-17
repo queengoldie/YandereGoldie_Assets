@@ -1,0 +1,2 @@
+# YandereGoldie_Assets
+a

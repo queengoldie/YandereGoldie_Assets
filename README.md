@@ -1,2 +1,3 @@
-# YandereGoldie_Assets
-a
+REPLACE DADDY_DEAREST
+
+THIS ART MADE BY ME
